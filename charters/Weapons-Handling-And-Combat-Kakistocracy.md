@@ -2,7 +2,7 @@
 *Last modified 2018-09-03*
 
 ## Purpose
-The purpose of WHACK is to allow Olin students to have a place to fence on campus. Many Oliners fenced before coming to school, but it is very difficult to travel to any clubs in the area.
+The purpose of WHACK is to allow Olin students to have a place to fence on campus. Many Oliners fenced before coming to school, but it is very difficult to travel to any clubs in the area. Some light HEMA (Historic European Martial Arts) might also be included.
 
 ## Membership
 WHACK is open to any member of the Olin campus who wishes to attend
@@ -14,7 +14,7 @@ WHACK is open to any member of the Olin campus who wishes to attend
 At the end of each semester, if the President decides that they don't want to run the club anymore, they choose a successor: usually whoever wants to be the President of the club next.
 
 ## Club Materials, Purchases and Space
-Club materials are currently stored in blue bins which move around throughout campus depending on where the club meets. Next year, it would be lovely to have some kind of more permanent storage space (which we are working on). Next year, it is expected that there will be more equipment purchases as the club increases in size.
+Club materials are currently stored in a cabnet in the third floor of the MAC. Next year, it is expected that there will be more equipment purchases as the club increases in size. As new gear is purchased, new storage might be required.
 
 ## Events and Activities
 WHACK meets roughly once a week for people to practice fencing and participate in bouts. Meeting times will be at the discretion of the president and open to suggestion by members.
